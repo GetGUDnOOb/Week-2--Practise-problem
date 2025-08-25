@@ -1,1 +1,1 @@
-Assignmenat of STEP Class
+Assignment of STEP Class
